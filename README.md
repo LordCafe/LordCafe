@@ -14,3 +14,14 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+# Adrián Lopez de la cruz ( LordCafe )
+
+![gif](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExYzczMmEwMmYwOGI3ZTA4NzZkNTAzNWJlMDNiYjAxZjFmY2U4YTU3YiZjdD1n/qgQUggAC3Pfv687qPC/giphy.gif)
+
+
+- 💬 Ask me about ...
+- 📫 How to reach me:  adrianlopezdelacruz@outlook.com
+- ⚡ Fun fact:  I like very much coffe. :)
+
